@@ -1,4 +1,4 @@
-# 
+# Rare Vegas Pro pour PC outils est le meilleur Vegas Pro pour PC outils avec montage par proxy et remappage temporel. Sécurisé, fiable et optimisé pour des performances maximales.
 
 
 
